@@ -1,4 +1,4 @@
-# meu-site-teste
-criar paginas de facil acesso para idosos
-letras grandes 
-palavras simples 
+# SITE PARA AJUDAR IDOSOS
+ESSE SITE É SOMENTE PARA IDOSOS 
+PRIMEIRO IREMOS VER COOMO MEXER NO SEU ONLYFANS DE IDOSO
+COMO TIRAR UMA FOTO PARA SEU USUARIO 
